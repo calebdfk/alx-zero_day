@@ -1,1 +1,1 @@
-My first readme
+It can only be God
